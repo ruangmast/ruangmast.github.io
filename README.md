@@ -1,1 +1,1 @@
-# ruangmast.github.io
+This page has been moved to ruangmas.github.io
